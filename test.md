@@ -3,8 +3,8 @@ afrgthsztareWEFGRA
 feargsaEFWDFEAGRSEFf
 EFRAGfedwefagrstrfe
 # sdeteaweFES
-DERTHRGRFEWDDEFGR
-EFWARTHGRFEDWFEGRH
+agrhstjztfgdfgh
+arehstjdrefagrs
 # ehrejtkrthegre
 agrhstjztfgdfgh
 arehstjdrefagrs
